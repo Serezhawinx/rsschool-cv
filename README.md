@@ -1,1 +1,1 @@
-https://Serezhawinx.github.io/rsschool-cv/cv
+https://Serezhawinx.github.io/rsschool-cv/
