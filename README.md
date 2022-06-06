@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Serezhawinx.github.io/rsschool-cv/cv
